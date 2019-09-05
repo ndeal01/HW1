@@ -1,3 +1,0 @@
-Nicholas Deal
-
-Iowa Cubs
